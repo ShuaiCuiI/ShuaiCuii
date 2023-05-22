@@ -14,7 +14,7 @@ i am also an open-source enthusiast and maintainer. i learned a lot from the ope
 <br/>
 <br/>
 
-![](https://visitor-badge.glitch.me/badge?page_id=icuishuai.icuishuai)
+![](https://visitor-badge.glitch.me/badge?page_id=shuaicuii.shuaicuii)
 
 <br/>
 </div>
